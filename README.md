@@ -64,7 +64,7 @@
 
 一、0.25（仅6,sol,我的最终防线）yapi.asia/register?aff=PCXCLBQXVSD6
 
-这个image2/.5    2分钱一张震撼我，独立IP要0.4倍率
+这个image2/.5    2分钱一张震撼我，独立IP要0.4倍率，今天晚上突然有全部5系列模型了，不保证不是意外
 
 二、0.25（仅6,sol,中转站公开测试目前97%可用,进步明显） api.aijws.com/register?aff=TA5FEF4E52GZ
 
