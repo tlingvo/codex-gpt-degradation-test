@@ -62,14 +62,14 @@
 
 （如果你使用了邀请码我这个高中生就用得起astra了呜呜呜）
 
-0.25（仅6,sol,我的最终防线）yapi.asia/register?aff=PCXCLBQXVSD6
+一、0.25（仅6,sol,我的最终防线）yapi.asia/register?aff=PCXCLBQXVSD6
 
 这个image2/.5    2分钱一张震撼我
 
 
-0.25（仅6,sol,中转站公开测试目前97%可用,进步明显） api.aijws.com/register?aff=TA5FEF4E52GZ
+二、0.25（仅6,sol,中转站公开测试目前97%可用,进步明显） api.aijws.com/register?aff=TA5FEF4E52GZ
 
-0.3 （不清楚稳定性）code28.ccwu.cc（这个没有邀请返利）
+三、0.3 （不清楚稳定性）code28.ccwu.cc（这个没有邀请返利:( ）
 
 如果你提供了更低倍率信息，那么比返利我更好啊！
 
